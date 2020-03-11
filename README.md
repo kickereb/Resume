@@ -1,2 +1,2 @@
 # Resume
-Sharing my resume - updated January 5, 2020
+Sharing my resume - updated March 11, 2020
